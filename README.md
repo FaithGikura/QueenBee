@@ -1,4 +1,4 @@
-#Queen Bee Fashion
+#Queen Bee Fashion#
 
 Queen Bee is a fashion-driven website that is stylish, easy to use, and hosts elegant, trendy, and chic fashion for women. From finding that perfect dress to your fashion inspirations, all are here with Queen Bee wrapped up in sophistication.
 
